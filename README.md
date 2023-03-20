@@ -1,1 +1,0 @@
-# itog_zadanie
